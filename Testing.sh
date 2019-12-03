@@ -1,0 +1,12 @@
+ass
+a
+sa
+s
+as
+a
+sa
+sas
+a
+a
+s
+a
